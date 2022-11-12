@@ -1,3 +1,26 @@
+
+![image](https://user-images.githubusercontent.com/118059334/201476369-7a7e5af4-29ea-4d57-8382-abaf646f89bd.png)
+> 路漫漫其修远兮，吾将上下而求索。
+
+![image](https://user-images.githubusercontent.com/118059334/201476334-2531b6f3-e18c-4343-9698-16a2329e944e.png)
+HWPM：Health、Wisdom、Profession、Meaning
+
+```
+结果价值
+做人做事
+平等尊重
+主动沟通
+协作共赢
+知足常乐
+感恩长存
+
+Health：冥想、R90睡眠、心态、步行、饮食、智能设备（大数据）、沐浴、阳光、读书、音乐、温度、光线
+Wisdom：读书、旅行、交流、记录、反省、执行、坚持、迭代、全局、长远
+Profession：实战第一、量变质变、沟通协作共赢、基本概念及原理、体系化
+Meaning：品质生活、基因传承、事业价值
+Investment：不借钱投资及消费，定投复利
+```
+
 ![image](https://user-images.githubusercontent.com/118059334/201476359-6bff63e6-1dc1-47d5-8908-089213ef2473.png)
 > [《小米创业思考》](https://book.douban.com/subject/36057097/)
 
@@ -15,10 +38,6 @@
 前面讲了爆品的起源和产生条件，那什么才是爆品？我的定义是：产品定义、性能、品质或价格与现有产品明显不同，大大超出用户期望并引发口碑热烈传播和热销的现象级产品。
 如果觉得这段话过于正式，我还有一个简洁版：`产品力超群，具有一流口碑，最终实现海量长销的产品。`
 再通俗一点讲，如果一个产品具有四个特征：`单款、精品、海量、长周期`，我们就可以说它是爆品。这四个特征就好比体检的指标，是可以观察到的结果，而非爆品产生的原因。我们要特别注意这一点，因为很多对爆品的错误认识都来自对这四个特征的片面理解。
-
-![image](https://user-images.githubusercontent.com/118059334/201476334-2531b6f3-e18c-4343-9698-16a2329e944e.png)
-
-![image](https://user-images.githubusercontent.com/118059334/201476369-7a7e5af4-29ea-4d57-8382-abaf646f89bd.png)
 
 
 ![Alt](https://repobeats.axiom.co/api/embed/320c8b373615fa403920a3f6fc588a744c8ced64.svg "Repobeats analytics image")
