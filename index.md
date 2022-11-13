@@ -47,6 +47,12 @@ Profession：实战第一、量变质变、沟通协作共赢、基本概念及�
 Meaning：品质生活、基因传承、事业价值
 Investment：不借钱投资及消费，定投复利
 ```
+![image](https://user-images.githubusercontent.com/118059334/201516514-1db03eaf-40bd-4ea4-9aec-646afe8a37d2.png)
+![image](https://user-images.githubusercontent.com/118059334/201516528-4e028117-6583-4ff9-afa3-b28a53a8a5d7.png)
+![image](https://user-images.githubusercontent.com/118059334/201516526-03fe1d66-f7aa-452e-91dd-a16d84185411.png)
+![image](https://user-images.githubusercontent.com/118059334/201516519-a4ef6e48-35cb-4ce9-b2c2-1e7580d08ffc.png)
+![image](https://user-images.githubusercontent.com/118059334/201516517-fc4a1c21-6074-4494-a60a-b07751a204e3.png)
+![image](https://user-images.githubusercontent.com/118059334/201516525-6bccf782-4c0a-41f7-9f71-05189a1ae26d.png)
 
 ![image](https://user-images.githubusercontent.com/118059334/201476359-6bff63e6-1dc1-47d5-8908-089213ef2473.png)
 > [《小米创业思考》](https://book.douban.com/subject/36057097/)
