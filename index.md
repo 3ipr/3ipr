@@ -7,20 +7,17 @@
 ![image](https://user-images.githubusercontent.com/118059334/201500629-ba374297-19c4-4a0b-968a-448f34503622.png)
 ![image](https://user-images.githubusercontent.com/118059334/201500634-2e437724-daa5-4197-9119-707717580505.png)
 ![image](https://user-images.githubusercontent.com/118059334/201500638-10f383d5-4b27-4a8a-b0b1-1034f0faa7b1.png)
-
+![image](https://user-images.githubusercontent.com/118059334/201500690-7554a87a-f48d-49b9-bf4c-3565b3ee7eec.png)
 > 波动、周期，顺势而为
 
 ![image](https://user-images.githubusercontent.com/118059334/201500600-c59c255a-0c87-4d72-be56-e92691975d4b.png)
 ![image](https://user-images.githubusercontent.com/118059334/201500620-a7c07a87-d14e-49dc-8d0b-4649a8af2463.png)
-
 
 - 第一步：要有[明确的目标](https://www.jianshu.com/p/a2f49e87b5a8)。
 - 第二步：找到阻碍你实现这些目标的问题，并且不容忍问题。
 - 第三步：准确诊断问题，找到问题的根源。
 - 第四步：规划可以解决问题的方案。
 - 第五步：做一切必要的事来践行这些方案，实现成果。
-
-
 
 ```
 产品——手机、代码、专利(SEP)、合同/系统/流程/模板/指引、人
@@ -29,7 +26,7 @@
 ```
 
 ![image](https://user-images.githubusercontent.com/118059334/201476334-2531b6f3-e18c-4343-9698-16a2329e944e.png)
-HWPM：Health、Wisdom、Profession、Meaning
+HWPM：Health、Wisdom、Profession、Meaning.  
 
 ```
 结果价值
@@ -39,6 +36,10 @@ HWPM：Health、Wisdom、Profession、Meaning
 协作共赢
 知足常乐
 感恩长存
+基于科学
+尊重常识
+少就是多
+慢就是快
 
 Health：冥想、R90睡眠、心态、步行、饮食、智能设备（大数据）、沐浴、阳光、读书、音乐、温度、光线
 Wisdom：读书、旅行、交流、记录、反省、执行、坚持、迭代、全局、长远
