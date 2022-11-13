@@ -2,6 +2,26 @@
 ![image](https://user-images.githubusercontent.com/118059334/201476369-7a7e5af4-29ea-4d57-8382-abaf646f89bd.png)
 > 路漫漫其修远兮，吾将上下而求索。
 
+![image](https://user-images.githubusercontent.com/118059334/201500549-2e81ec9c-e382-45a0-b392-0e1d4d507bcc.png)
+![image](https://user-images.githubusercontent.com/118059334/201500559-2aae4d69-9fe1-44e0-9a31-29d4c464f770.png)
+![image](https://user-images.githubusercontent.com/118059334/201500629-ba374297-19c4-4a0b-968a-448f34503622.png)
+![image](https://user-images.githubusercontent.com/118059334/201500634-2e437724-daa5-4197-9119-707717580505.png)
+![image](https://user-images.githubusercontent.com/118059334/201500638-10f383d5-4b27-4a8a-b0b1-1034f0faa7b1.png)
+
+> 波动、周期，顺势而为
+
+![image](https://user-images.githubusercontent.com/118059334/201500600-c59c255a-0c87-4d72-be56-e92691975d4b.png)
+![image](https://user-images.githubusercontent.com/118059334/201500620-a7c07a87-d14e-49dc-8d0b-4649a8af2463.png)
+
+
+- 第一步：要有[明确的目标](https://www.jianshu.com/p/a2f49e87b5a8)。
+- 第二步：找到阻碍你实现这些目标的问题，并且不容忍问题。
+- 第三步：准确诊断问题，找到问题的根源。
+- 第四步：规划可以解决问题的方案。
+- 第五步：做一切必要的事来践行这些方案，实现成果。
+
+
+
 ```
 产品——手机、代码、专利(SEP)、合同/系统/流程/模板/指引、人
 品牌——口碑，家庭、同事、社会...
