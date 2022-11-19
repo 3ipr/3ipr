@@ -1,4 +1,13 @@
 
+![image](https://user-images.githubusercontent.com/118059334/202844647-35c831cf-8a93-4008-b3f2-ae187b4f5646.png)
+![image](https://user-images.githubusercontent.com/118059334/202844649-266504b1-f7a5-4249-8072-190f157dc5ee.png)
+![image](https://user-images.githubusercontent.com/118059334/202844652-bf274760-1a76-4c1d-ba94-0bc0591c71ee.png)
+![image](https://user-images.githubusercontent.com/118059334/202844653-16e0bf1a-a12f-417d-a14d-967546fcabb6.png)
+![image](https://user-images.githubusercontent.com/118059334/202844654-2fb7d450-f2ed-40f7-bafa-beb9c5640b29.png)
+![image](https://user-images.githubusercontent.com/118059334/202844656-abfc25b1-f7a4-4dbb-94c5-7dfa536e2c7b.png)
+![image](https://user-images.githubusercontent.com/118059334/202844659-b85ae281-6f3c-473d-8736-36179ca78278.png)
+> 后期印象派代表画家，高更icon的代表作《我们从哪里来？我们是谁？我们向何处去？》。
+
 ![image](https://user-images.githubusercontent.com/118059334/201476369-7a7e5af4-29ea-4d57-8382-abaf646f89bd.png)
 > 路漫漫其修远兮，吾将上下而求索。
 
@@ -47,12 +56,16 @@ Profession：实战第一、量变质变、沟通协作共赢、基本概念及�
 Meaning：品质生活、基因传承、事业价值
 Investment：不借钱投资及消费，定投复利
 ```
+
+
 ![image](https://user-images.githubusercontent.com/118059334/201516514-1db03eaf-40bd-4ea4-9aec-646afe8a37d2.png)
 ![image](https://user-images.githubusercontent.com/118059334/201516528-4e028117-6583-4ff9-afa3-b28a53a8a5d7.png)
 ![image](https://user-images.githubusercontent.com/118059334/201516526-03fe1d66-f7aa-452e-91dd-a16d84185411.png)
 ![image](https://user-images.githubusercontent.com/118059334/201516519-a4ef6e48-35cb-4ce9-b2c2-1e7580d08ffc.png)
 ![image](https://user-images.githubusercontent.com/118059334/201516517-fc4a1c21-6074-4494-a60a-b07751a204e3.png)
 ![image](https://user-images.githubusercontent.com/118059334/201516525-6bccf782-4c0a-41f7-9f71-05189a1ae26d.png)
+
+
 
 ![image](https://user-images.githubusercontent.com/118059334/201476359-6bff63e6-1dc1-47d5-8908-089213ef2473.png)
 > [《小米创业思考》](https://book.douban.com/subject/36057097/)
