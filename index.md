@@ -195,4 +195,9 @@ Investment：不借钱投资及消费，定投复利
 
 > 无论是技术研发、产品定义，还是用户运营、品牌建设和渠道建设，关键都在于有清晰、明确、具体的战略方向，全局性的体系视野，以及从战略A点到B点的目标和路径的广泛清晰共识，拆解精确的路标，这样才能保证每一步的投入都能转化成可持续的积累。
 
+![image](https://user-images.githubusercontent.com/118059334/202855347-105b549c-3ce0-4e94-a53b-4745a5d6f90f.png)
+![image](https://user-images.githubusercontent.com/118059334/202855355-5ef95b39-98ec-4add-9ea3-13eeea29a5c1.png)
+![image](https://user-images.githubusercontent.com/118059334/202855352-834ec45d-60fc-4905-8d62-9c515c0c7e87.png)
+
+
 ![Alt](https://repobeats.axiom.co/api/embed/320c8b373615fa403920a3f6fc588a744c8ced64.svg "Repobeats analytics image")
