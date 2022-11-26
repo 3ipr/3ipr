@@ -2,6 +2,13 @@
 ![image](https://user-images.githubusercontent.com/118059334/202844647-35c831cf-8a93-4008-b3f2-ae187b4f5646.png)
 ![image](https://user-images.githubusercontent.com/118059334/202844649-266504b1-f7a5-4249-8072-190f157dc5ee.png)
 ![image](https://user-images.githubusercontent.com/118059334/202844652-bf274760-1a76-4c1d-ba94-0bc0591c71ee.png)
+> 少有、正确及价值之旅——成长成熟、自立自强及自信——见识格局、节奏及生活
+
+```
+HWPM模型
+每天每周坚持做
+从量变到质变
+```
 
 ![image](https://user-images.githubusercontent.com/118059334/204067182-d41af05c-c2b5-4e8f-918a-d6e162b0935a.png)
 > [Tim Berners-Lee and Vint Cerf](https://www.reddit.com/r/pcmasterrace/comments/b086lz/tim_bernerslee_and_vint_cerf_wearing_funny_shirts/) wearing funny shirts for today's special occasion (30th anniversary of WWW)
