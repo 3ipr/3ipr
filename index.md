@@ -1,8 +1,11 @@
 ![image](https://github.com/3ipr/3ipr/assets/118059334/0c6d026b-414d-4fb0-a5b9-33f05ed12369)
+![image](https://github.com/3ipr/3ipr/assets/118059334/dab5efea-d0cf-42bc-8881-1aa0e277db92)
+> 修己安人
+
 ![image](https://github.com/3ipr/3ipr/assets/118059334/ff0de418-c49c-47d4-8b18-dd036aced80d)
 ![image](https://github.com/3ipr/3ipr/assets/118059334/74522ce9-a95c-4426-9f91-3dc680012ba6)
 ![image](https://github.com/3ipr/3ipr/assets/118059334/cbacc3ef-5752-4e65-af48-0b9aa1e51177)
-> 修己安人，先照顾好自己和家人，持续做正确有价值的事情
+> 先照顾好自己和家人，持续做正确有价值的事情
 
 ![image](https://github.com/3ipr/3ipr/assets/118059334/9e79dc03-e758-4328-bdc8-b5c6b4a3a860)
 ![image](https://github.com/3ipr/3ipr/assets/118059334/71d0dbc8-e471-479a-9c8d-648b67702545)
