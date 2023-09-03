@@ -12,6 +12,8 @@
 ![image](https://github.com/3ipr/3ipr/assets/118059334/ccb605fb-b2ec-4277-92be-93180ad99dc4)
 > 脑神经连接 微生物群组 宇宙一尘埃 人世一过客 书房一书童 家族一台阶 家庭一基石 问题——价值
 
+![](https://github.com/3ipr/3ipr/assets/118059334/4ca66e92-e96e-4883-bd05-e740dd1e5998)
+
 ```
 1. 讲道理
 2. 自己的事情自己做
