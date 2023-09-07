@@ -289,4 +289,5 @@ ABCDEF
 > 金手指，点石成金
 
 ![](https://github.com/3ipr/3ipr/assets/118059334/620522d7-cc54-4541-9676-d26c59b979e8)
+![](https://github.com/3ipr/3ipr/assets/118059334/01320f0f-8ebf-4224-bd26-430287eefc39)
 > [Go Beyond.](https://www.hihonor.com/cn/brand/)
