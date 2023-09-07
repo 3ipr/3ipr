@@ -2,6 +2,9 @@
 ![image](https://github.com/3ipr/3ipr/assets/118059334/dab5efea-d0cf-42bc-8881-1aa0e277db92)
 > 修己安人
 
+![](https://github.com/3ipr/3ipr/assets/118059334/339c18ee-06ca-4d4d-a7b5-af60027b6f35)
+> 小我，大我，忘我，人生真正的价值在于贡献...
+
 ![image](https://github.com/3ipr/3ipr/assets/118059334/ff0de418-c49c-47d4-8b18-dd036aced80d)
 ![image](https://github.com/3ipr/3ipr/assets/118059334/74522ce9-a95c-4426-9f91-3dc680012ba6)
 ![image](https://github.com/3ipr/3ipr/assets/118059334/cbacc3ef-5752-4e65-af48-0b9aa1e51177)
@@ -42,6 +45,10 @@
 作品，价值...
 时间复利，经历体验，量变质变
 自己就是最好的解决方案，信任、支持及授权...
+
+只关注所负责的环节，难道不关注最后的结果和价值？
+只关注自己的一亩三分地，领导真正关注的点是什么呢？
+为什么不找我呢？
 
 痛苦，反思，行动，坚持，成长。
 奋斗的道路上你永远不孤单，你永远不是一个人在战斗
