@@ -5,6 +5,9 @@
 ![](https://github.com/3ipr/3ipr/assets/118059334/339c18ee-06ca-4d4d-a7b5-af60027b6f35)
 > 小我，大我，忘我，人生真正的价值在于贡献...
 
+![](https://github.com/3ipr/3ipr/assets/118059334/d3d57331-0a1b-4ed9-a4f0-49d3497643de)
+> deepcreator-->ipcreator-->ahaip
+
 ![image](https://github.com/3ipr/3ipr/assets/118059334/ff0de418-c49c-47d4-8b18-dd036aced80d)
 ![image](https://github.com/3ipr/3ipr/assets/118059334/74522ce9-a95c-4426-9f91-3dc680012ba6)
 ![image](https://github.com/3ipr/3ipr/assets/118059334/cbacc3ef-5752-4e65-af48-0b9aa1e51177)
