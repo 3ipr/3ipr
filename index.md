@@ -8,6 +8,19 @@
 ![](https://github.com/3ipr/3ipr/assets/118059334/d3d57331-0a1b-4ed9-a4f0-49d3497643de)
 > deepcreator-->ipcreator-->ahaip
 
+![image](https://github.com/3ipr/3ipr/assets/118059334/d0e36973-03a4-4581-a0b3-3a7e6ca81a28)
+![image](https://github.com/3ipr/3ipr/assets/118059334/f89b0ce0-067a-4ee8-a3e0-afd3b6b931ac)
+![image](https://github.com/3ipr/3ipr/assets/118059334/7f081b8a-25b2-429f-90a6-620f9a94b80e)
+![image](https://github.com/3ipr/3ipr/assets/118059334/4aa79d9d-bada-40d3-b3df-83c7a2f535f5)
+![image](https://github.com/3ipr/3ipr/assets/118059334/f11320c7-eb2a-427b-8cae-96bee57fb536)
+> 胸怀世界，抬头看路，低头拉车...
+
+```
+立法，倡导价值、明确边界
+司法，判定是非、保护权益
+执法，维护正义、申张人性
+```
+
 ![image](https://github.com/3ipr/3ipr/assets/118059334/ff0de418-c49c-47d4-8b18-dd036aced80d)
 ![image](https://github.com/3ipr/3ipr/assets/118059334/74522ce9-a95c-4426-9f91-3dc680012ba6)
 ![image](https://github.com/3ipr/3ipr/assets/118059334/cbacc3ef-5752-4e65-af48-0b9aa1e51177)
