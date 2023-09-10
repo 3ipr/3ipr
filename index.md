@@ -15,6 +15,11 @@
 ![image](https://github.com/3ipr/3ipr/assets/118059334/f11320c7-eb2a-427b-8cae-96bee57fb536)
 > 胸怀世界，抬头看路，低头拉车...
 
+![](https://github.com/3ipr/3ipr/assets/118059334/a7e1ed31-433a-4c43-9037-53855d7030d2)
+![](https://github.com/3ipr/3ipr/assets/118059334/13506f55-3eeb-4839-bb3e-bd04eebd701a)
+![](https://github.com/3ipr/3ipr/assets/118059334/6a92ca11-e10c-4107-855e-8d493de1ceef)
+> 动态发展的思维，就如科技馆，双子塔等...
+
 ```
 立法，倡导价值、明确边界
 司法，判定是非、保护权益
