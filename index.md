@@ -20,6 +20,12 @@
 ![](https://github.com/3ipr/3ipr/assets/118059334/6a92ca11-e10c-4107-855e-8d493de1ceef)
 > 动态发展的思维，就如科技馆，双子塔等...
 
+![](https://github.com/3ipr/3ipr/assets/118059334/57789427-04bc-4798-94f0-6f464e127590)
+![](https://github.com/3ipr/3ipr/assets/118059334/fa6f9ae1-29ee-46c8-8142-502b6d601c1c)
+![](https://github.com/3ipr/3ipr/assets/118059334/669d98f3-d9aa-4aa6-9b33-09fbd8f455f8)
+![](https://github.com/3ipr/3ipr/assets/118059334/e1c9301c-e26d-4b1e-bf5f-c57fa9270310)
+> 一张一弛，达之道也
+
 ```
 立法，倡导价值、明确边界
 司法，判定是非、保护权益
