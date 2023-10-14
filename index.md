@@ -1,5 +1,5 @@
-![image](https://github.com/3ipr/3ipr/assets/118059334/0c6d026b-414d-4fb0-a5b9-33f05ed12369)
-![image](https://github.com/3ipr/3ipr/assets/118059334/dab5efea-d0cf-42bc-8881-1aa0e277db92)
+![](https://github.com/3ipr/3ipr/assets/118059334/0c6d026b-414d-4fb0-a5b9-33f05ed12369)
+![](https://github.com/3ipr/3ipr/assets/118059334/dab5efea-d0cf-42bc-8881-1aa0e277db92)
 > 修己安人
 
 ![](https://github.com/3ipr/3ipr/assets/118059334/339c18ee-06ca-4d4d-a7b5-af60027b6f35)
@@ -8,11 +8,11 @@
 ![](https://github.com/3ipr/3ipr/assets/118059334/d3d57331-0a1b-4ed9-a4f0-49d3497643de)
 > deepcreator-->ipcreator-->ahaip，持续进化，走老路到不了新目的地
 
-![image](https://github.com/3ipr/3ipr/assets/118059334/d0e36973-03a4-4581-a0b3-3a7e6ca81a28)
-![image](https://github.com/3ipr/3ipr/assets/118059334/f89b0ce0-067a-4ee8-a3e0-afd3b6b931ac)
-![image](https://github.com/3ipr/3ipr/assets/118059334/7f081b8a-25b2-429f-90a6-620f9a94b80e)
-![image](https://github.com/3ipr/3ipr/assets/118059334/4aa79d9d-bada-40d3-b3df-83c7a2f535f5)
-![image](https://github.com/3ipr/3ipr/assets/118059334/f11320c7-eb2a-427b-8cae-96bee57fb536)
+![](https://github.com/3ipr/3ipr/assets/118059334/d0e36973-03a4-4581-a0b3-3a7e6ca81a28)
+![](https://github.com/3ipr/3ipr/assets/118059334/f89b0ce0-067a-4ee8-a3e0-afd3b6b931ac)
+![](https://github.com/3ipr/3ipr/assets/118059334/7f081b8a-25b2-429f-90a6-620f9a94b80e)
+![](https://github.com/3ipr/3ipr/assets/118059334/4aa79d9d-bada-40d3-b3df-83c7a2f535f5)
+![](https://github.com/3ipr/3ipr/assets/118059334/f11320c7-eb2a-427b-8cae-96bee57fb536)
 > 胸怀世界，抬头看路，低头拉车...
 
 ![](https://github.com/3ipr/3ipr/assets/118059334/a7e1ed31-433a-4c43-9037-53855d7030d2)
@@ -32,14 +32,14 @@
 执法，维护正义、申张人性
 ```
 
-![image](https://github.com/3ipr/3ipr/assets/118059334/ff0de418-c49c-47d4-8b18-dd036aced80d)
-![image](https://github.com/3ipr/3ipr/assets/118059334/74522ce9-a95c-4426-9f91-3dc680012ba6)
-![image](https://github.com/3ipr/3ipr/assets/118059334/cbacc3ef-5752-4e65-af48-0b9aa1e51177)
+![](https://github.com/3ipr/3ipr/assets/118059334/ff0de418-c49c-47d4-8b18-dd036aced80d)
+![](https://github.com/3ipr/3ipr/assets/118059334/74522ce9-a95c-4426-9f91-3dc680012ba6)
+![](https://github.com/3ipr/3ipr/assets/118059334/cbacc3ef-5752-4e65-af48-0b9aa1e51177)
 > 先照顾好自己和家人，持续做正确有价值的事情
 
-![image](https://github.com/3ipr/3ipr/assets/118059334/9e79dc03-e758-4328-bdc8-b5c6b4a3a860)
-![image](https://github.com/3ipr/3ipr/assets/118059334/71d0dbc8-e471-479a-9c8d-648b67702545)
-![image](https://github.com/3ipr/3ipr/assets/118059334/ccb605fb-b2ec-4277-92be-93180ad99dc4)
+![](https://github.com/3ipr/3ipr/assets/118059334/9e79dc03-e758-4328-bdc8-b5c6b4a3a860)
+![](https://github.com/3ipr/3ipr/assets/118059334/71d0dbc8-e471-479a-9c8d-648b67702545)
+![](https://github.com/3ipr/3ipr/assets/118059334/ccb605fb-b2ec-4277-92be-93180ad99dc4)
 > 脑神经连接 微生物群组 宇宙一尘埃 人世一过客 书房一书童 家族一台阶 家庭一基石 问题——价值
 
 ![](https://github.com/3ipr/3ipr/assets/118059334/4ca66e92-e96e-4883-bd05-e740dd1e5998)
@@ -50,18 +50,17 @@
 3. 爱分享
 ```
 
-![image](https://github.com/3ipr/3ipr/assets/118059334/fd78d638-21c4-4cc8-88ae-9b363d587a24)
-![image](https://github.com/3ipr/3ipr/assets/118059334/49f082b7-5005-4f5f-ad83-0295e06f8eec)
-![image](https://github.com/3ipr/3ipr/assets/118059334/88b2d671-a183-49ce-8cf0-039eba2c9e75)
-![image](https://github.com/3ipr/3ipr/assets/118059334/eaa13d93-5b3e-487e-908b-6b0220346416)
+![](https://github.com/3ipr/3ipr/assets/118059334/fd78d638-21c4-4cc8-88ae-9b363d587a24)
+![](https://github.com/3ipr/3ipr/assets/118059334/49f082b7-5005-4f5f-ad83-0295e06f8eec)
+![](https://github.com/3ipr/3ipr/assets/118059334/88b2d671-a183-49ce-8cf0-039eba2c9e75)
+![](https://github.com/3ipr/3ipr/assets/118059334/eaa13d93-5b3e-487e-908b-6b0220346416)
 > 当你翻过眼前的高山，回头看那不过是一个矮坡。
 
-![image](https://github.com/3ipr/3ipr/assets/118059334/78a9a54f-b989-431a-91db-0c176822b269)
-![image](https://github.com/3ipr/3ipr/assets/118059334/929ea923-2f7a-4ef8-affa-6356d4b55700)
+![](https://github.com/3ipr/3ipr/assets/118059334/78a9a54f-b989-431a-91db-0c176822b269)
+![](https://github.com/3ipr/3ipr/assets/118059334/929ea923-2f7a-4ef8-affa-6356d4b55700)
 
-![image](https://github.com/3ipr/3ipr/assets/118059334/90f2da9c-c1a1-4b51-8e98-7fc330413a76)
-
-在任何一个领域，刻意练习都是造就顶尖人才的方法，也是顶尖人才用来保持领先地位的方法。如果你想成为专业人士，刻意训练自己是绝对必不可少的。 
+![](https://github.com/3ipr/3ipr/assets/118059334/90f2da9c-c1a1-4b51-8e98-7fc330413a76)
+> 在任何一个领域，刻意练习都是造就顶尖人才的方法，也是顶尖人才用来保持领先地位的方法。如果你想成为专业人士，刻意训练自己是绝对必不可少的。 
 -- 《刻意练习终极指南》
 
 ![](https://github.com/3ipr/3ipr/assets/118059334/f754b4a2-7fa2-4ffd-b811-389cf08e3d21)
@@ -219,32 +218,32 @@ ABCDEF
 反馈是打通系统思维的关键，反馈意味着要素之间的连接，意味着闭环，意味着迭代。
 ```
 
-![image](https://github.com/3ipr/3ipr/assets/118059334/c013d473-1066-494e-a0c1-412729da410e)
-![image](https://github.com/3ipr/3ipr/assets/118059334/2fec8ea0-8d99-44d8-ac8f-3290fa0d0ddf)
+![](https://github.com/3ipr/3ipr/assets/118059334/c013d473-1066-494e-a0c1-412729da410e)
+![](https://github.com/3ipr/3ipr/assets/118059334/2fec8ea0-8d99-44d8-ac8f-3290fa0d0ddf)
 > 推迟满足感包含两个方面：你可以得到的好处，你不急于去获取，你是有节制地使用你的优势和好处；不是马上有回报、有好处的，你也要去做。
 
-![image](https://github.com/3ipr/3ipr/assets/118059334/1dd4f5ce-19af-4c91-96c9-b8ec46fcf455)
-![image](https://github.com/3ipr/3ipr/assets/118059334/391b8d08-cb88-48bd-a78c-1e1b2648f949)
-![image](https://github.com/3ipr/3ipr/assets/118059334/f50ec0c9-e369-4bd8-a1f4-953d9d7977db)
-![image](https://github.com/3ipr/3ipr/assets/118059334/5310f8d8-dc7f-4552-9431-31d9ca5907ae)
-![image](https://github.com/3ipr/3ipr/assets/118059334/e5bdc22f-0d59-44db-ae66-a8893a2d1721)
-![image](https://github.com/3ipr/3ipr/assets/118059334/d775a0ec-def5-470c-898e-32dd0c0c27e5)
+![](https://github.com/3ipr/3ipr/assets/118059334/1dd4f5ce-19af-4c91-96c9-b8ec46fcf455)
+![](https://github.com/3ipr/3ipr/assets/118059334/391b8d08-cb88-48bd-a78c-1e1b2648f949)
+![](https://github.com/3ipr/3ipr/assets/118059334/f50ec0c9-e369-4bd8-a1f4-953d9d7977db)
+![](https://github.com/3ipr/3ipr/assets/118059334/5310f8d8-dc7f-4552-9431-31d9ca5907ae)
+![](https://github.com/3ipr/3ipr/assets/118059334/e5bdc22f-0d59-44db-ae66-a8893a2d1721)
+![](https://github.com/3ipr/3ipr/assets/118059334/d775a0ec-def5-470c-898e-32dd0c0c27e5)
 > 对抗压力的最好方法，就是找到一个能够持续为你带来快乐和幸福感的活动， 用正向的力量冲淡负向的压力。找到属于自己的“人生防火墙”。
 
-![image](https://github.com/3ipr/3ipr/assets/118059334/44b58e9e-83d6-4680-bb62-f5622ff28cb2)
+![](https://github.com/3ipr/3ipr/assets/118059334/44b58e9e-83d6-4680-bb62-f5622ff28cb2)
 > 人们总是急于求成，却忽略了内心的成长与丰富。向内生长，才能抵抗成长路上的阻碍。
 
-![image](https://github.com/3ipr/3ipr/assets/118059334/64eba442-d49e-45a6-be66-269e1674becc)
+![](https://github.com/3ipr/3ipr/assets/118059334/64eba442-d49e-45a6-be66-269e1674becc)
 > 真正的聪明人制定规则，然后维护规则，这样就可以避免自己的一生都在不断地玩“跑得快”这种游戏。 
 
-![image](https://github.com/3ipr/3ipr/assets/118059334/304e5339-4cee-4cbf-be29-923b6df651f3)
-![image](https://github.com/3ipr/3ipr/assets/118059334/c40428ab-36ec-448d-8930-e9b13e4d4e3d)
-![image](https://github.com/3ipr/3ipr/assets/118059334/5eead242-fb17-423b-91ee-9f21ce490964)
-![image](https://github.com/3ipr/3ipr/assets/118059334/7eaa5556-a6be-4e9d-bf91-9309f2349912)
-![image](https://github.com/3ipr/3ipr/assets/118059334/ba7fa117-e145-482e-af54-8efc39dc492c)
-![image](https://github.com/3ipr/3ipr/assets/118059334/b20d05a2-cffd-4b71-b344-ef3c316deab5)
-![image](https://github.com/3ipr/3ipr/assets/118059334/3973afc3-7e8c-4135-9c98-74ea52e4b06e)
-![image](https://github.com/3ipr/3ipr/assets/118059334/c0bf72e5-443b-4fcd-87b4-37fd03930c21)
+![](https://github.com/3ipr/3ipr/assets/118059334/304e5339-4cee-4cbf-be29-923b6df651f3)
+![](https://github.com/3ipr/3ipr/assets/118059334/c40428ab-36ec-448d-8930-e9b13e4d4e3d)
+![](https://github.com/3ipr/3ipr/assets/118059334/5eead242-fb17-423b-91ee-9f21ce490964)
+![](https://github.com/3ipr/3ipr/assets/118059334/7eaa5556-a6be-4e9d-bf91-9309f2349912)
+![](https://github.com/3ipr/3ipr/assets/118059334/ba7fa117-e145-482e-af54-8efc39dc492c)
+![](https://github.com/3ipr/3ipr/assets/118059334/b20d05a2-cffd-4b71-b344-ef3c316deab5)
+![](https://github.com/3ipr/3ipr/assets/118059334/3973afc3-7e8c-4135-9c98-74ea52e4b06e)
+![](https://github.com/3ipr/3ipr/assets/118059334/c0bf72e5-443b-4fcd-87b4-37fd03930c21)
 > 平常心做非常事，不论个人工作和生活中有什么挑战，有什么困难，这些都是外部的。自己能够做到的是外部波澜起伏，内心平静如常。
 
 
@@ -259,11 +258,11 @@ ABCDEF
 两年前，有一个纪录片非常火，叫Free Solo（《徒手攀岩》）。主角Alex Honnold。有很多人转发他的故事，但我自己印象最深的一点是：往前往后都很危险，但腿软心乱最危险。在攀岩的过程中，既不能过多回头看，
 ```
 
-![image](https://github.com/3ipr/3ipr/assets/118059334/ea7913a8-f103-4003-84ad-ef54776cde60)
-![image](https://github.com/3ipr/3ipr/assets/118059334/f82c14ff-6c68-47e9-8730-2e7e16adc8f4)
-![image](https://github.com/3ipr/3ipr/assets/118059334/036e5763-a08c-4855-95ac-a3cc56d3671c)
-![image](https://github.com/3ipr/3ipr/assets/118059334/7def1dfc-d861-428d-8096-ae5795ad0673)
-![image](https://github.com/3ipr/3ipr/assets/118059334/69fbd38a-fcaa-4e88-8ce7-183080aa49cd)
+![](https://github.com/3ipr/3ipr/assets/118059334/ea7913a8-f103-4003-84ad-ef54776cde60)
+![](https://github.com/3ipr/3ipr/assets/118059334/f82c14ff-6c68-47e9-8730-2e7e16adc8f4)
+![](https://github.com/3ipr/3ipr/assets/118059334/036e5763-a08c-4855-95ac-a3cc56d3671c)
+![](https://github.com/3ipr/3ipr/assets/118059334/7def1dfc-d861-428d-8096-ae5795ad0673)
+![](https://github.com/3ipr/3ipr/assets/118059334/69fbd38a-fcaa-4e88-8ce7-183080aa49cd)
 > 一生干好一件事：高价值专利产品及经典案例，创造美感，沉浸并乐在其中...
 
 1. 我来
@@ -277,16 +276,16 @@ ABCDEF
 9. 我是谁
 10. 我该是谁
 
-![image](https://github.com/3ipr/3ipr/assets/118059334/58eb0974-8381-4f57-883b-30abce603cf5)
-![image](https://github.com/3ipr/3ipr/assets/118059334/c30772f8-1c70-477d-b83c-2897deffe67c)
-![image](https://github.com/3ipr/3ipr/assets/118059334/dbe0c1c6-cc6d-47bf-9507-e460fedbc0ff)
-![image](https://github.com/3ipr/3ipr/assets/118059334/b574f85e-3135-4984-a3dc-7b610600149c)
-![image](https://github.com/3ipr/3ipr/assets/118059334/0506314f-db49-4ebe-975e-99cd11403706)
-![image](https://github.com/3ipr/3ipr/assets/118059334/9e017ae1-ab3f-4b19-8439-8e8f4558d629)
-![image](https://github.com/3ipr/3ipr/assets/118059334/e0661cde-fc47-41b5-bf08-0e9c0a63922a)
-![image](https://github.com/3ipr/3ipr/assets/118059334/9600006e-44d9-41fe-a3fd-adc018a768a6)
-![image](https://github.com/3ipr/3ipr/assets/118059334/3d04e1ca-31a5-4a54-82e2-f556986a554b)
-![image](https://github.com/3ipr/3ipr/assets/118059334/1f47fe3d-f8dd-4007-9c91-89129ad3127c)
+![](https://github.com/3ipr/3ipr/assets/118059334/58eb0974-8381-4f57-883b-30abce603cf5)
+![](https://github.com/3ipr/3ipr/assets/118059334/c30772f8-1c70-477d-b83c-2897deffe67c)
+![](https://github.com/3ipr/3ipr/assets/118059334/dbe0c1c6-cc6d-47bf-9507-e460fedbc0ff)
+![](https://github.com/3ipr/3ipr/assets/118059334/b574f85e-3135-4984-a3dc-7b610600149c)
+![](https://github.com/3ipr/3ipr/assets/118059334/0506314f-db49-4ebe-975e-99cd11403706)
+![](https://github.com/3ipr/3ipr/assets/118059334/9e017ae1-ab3f-4b19-8439-8e8f4558d629)
+![](https://github.com/3ipr/3ipr/assets/118059334/e0661cde-fc47-41b5-bf08-0e9c0a63922a)
+![](https://github.com/3ipr/3ipr/assets/118059334/9600006e-44d9-41fe-a3fd-adc018a768a6)
+![](https://github.com/3ipr/3ipr/assets/118059334/3d04e1ca-31a5-4a54-82e2-f556986a554b)
+![](https://github.com/3ipr/3ipr/assets/118059334/1f47fe3d-f8dd-4007-9c91-89129ad3127c)
 > 十条口诀
 
 1. 我可以贡献一个新的视角吗？
@@ -300,37 +299,86 @@ ABCDEF
 9. 这件事我考虑不周，邀请你一起制定下一步的计划
 10. 这件事你更专业，有解决方案吗？
 
-![image](https://github.com/3ipr/3ipr/assets/118059334/839754c2-9a10-4cfb-8091-be7d4ae50ba4)
-![image](https://github.com/3ipr/3ipr/assets/118059334/b375a02c-419c-40b3-881a-67d7bb51798c)
-![image](https://github.com/3ipr/3ipr/assets/118059334/9dd16f2d-171d-4475-a505-5339223b2628)
-![image](https://github.com/3ipr/3ipr/assets/118059334/4aad6024-cdb0-4175-a57c-57bba411a173)
-![image](https://github.com/3ipr/3ipr/assets/118059334/c0430567-fbe2-4eeb-a5e7-ce3169884569)
-![image](https://github.com/3ipr/3ipr/assets/118059334/9718bcda-802d-4d46-a271-26113cd05b30)
-![image](https://github.com/3ipr/3ipr/assets/118059334/9adc3500-5c00-4033-baf0-bf14e5282958)
-![image](https://github.com/3ipr/3ipr/assets/118059334/dc556c56-fe59-4ab8-8cc7-e05130c4eec8)
-![image](https://github.com/3ipr/3ipr/assets/118059334/4fd55392-f220-43b0-b40e-040ff5b9d73e)
-![image](https://github.com/3ipr/3ipr/assets/118059334/f3875a14-4977-4bc1-8289-d8baa22c81eb)
+![](https://github.com/3ipr/3ipr/assets/118059334/839754c2-9a10-4cfb-8091-be7d4ae50ba4)
+![](https://github.com/3ipr/3ipr/assets/118059334/b375a02c-419c-40b3-881a-67d7bb51798c)
+![](https://github.com/3ipr/3ipr/assets/118059334/9dd16f2d-171d-4475-a505-5339223b2628)
+![](https://github.com/3ipr/3ipr/assets/118059334/4aad6024-cdb0-4175-a57c-57bba411a173)
+![](https://github.com/3ipr/3ipr/assets/118059334/c0430567-fbe2-4eeb-a5e7-ce3169884569)
+![](https://github.com/3ipr/3ipr/assets/118059334/9718bcda-802d-4d46-a271-26113cd05b30)
+![](https://github.com/3ipr/3ipr/assets/118059334/9adc3500-5c00-4033-baf0-bf14e5282958)
+![](https://github.com/3ipr/3ipr/assets/118059334/dc556c56-fe59-4ab8-8cc7-e05130c4eec8)
+![](https://github.com/3ipr/3ipr/assets/118059334/4fd55392-f220-43b0-b40e-040ff5b9d73e)
+![](https://github.com/3ipr/3ipr/assets/118059334/f3875a14-4977-4bc1-8289-d8baa22c81eb)
 > 十条口头禅
 
-![image](https://github.com/3ipr/3ipr/assets/118059334/15da1326-2dbf-44a8-b093-28945ea7c7c8)
-![image](https://github.com/3ipr/3ipr/assets/118059334/09c6ce26-89c7-4dff-a91e-040c33c70337)
-![image](https://github.com/3ipr/3ipr/assets/118059334/88d935e1-d3f2-4624-b8c1-9ee45e601892)
-![image](https://github.com/3ipr/3ipr/assets/118059334/3dfe2eb8-ae52-44a9-ace1-0deacfa45bb9)
+![](https://github.com/3ipr/3ipr/assets/118059334/15da1326-2dbf-44a8-b093-28945ea7c7c8)
+![](https://github.com/3ipr/3ipr/assets/118059334/09c6ce26-89c7-4dff-a91e-040c33c70337)
+![](https://github.com/3ipr/3ipr/assets/118059334/88d935e1-d3f2-4624-b8c1-9ee45e601892)
+![](https://github.com/3ipr/3ipr/assets/118059334/3dfe2eb8-ae52-44a9-ace1-0deacfa45bb9)
 > 雷军年度演讲
 
-![image](https://github.com/3ipr/3ipr/assets/118059334/25066a7e-ca6a-49f3-9322-01a790d91adb)
+![](https://github.com/3ipr/3ipr/assets/118059334/25066a7e-ca6a-49f3-9322-01a790d91adb)
 > 只有认知突破，才能带来真正的成长。每一段经历，每一次蜕变，都是一次认知的突破，更是一次关键的成长。在时代变迁的洪流中，如何获得内心的平静呢？我的答案是：成长。
 
+![](https://github.com/3ipr/3ipr/assets/118059334/5a4c16ce-ebcf-4c5b-9eb7-2124155ad255)
+> 小米价值观，“真诚 热爱”，是不变的总纲
 
-![image](https://github.com/3ipr/3ipr/assets/118059334/5bc6183b-3c22-4762-8028-62fde2898ff3)
-![image](https://github.com/3ipr/3ipr/assets/118059334/e7539af8-8757-443b-8129-d328b7e860e6)
-![image](https://github.com/3ipr/3ipr/assets/118059334/3bf58291-0260-4cab-9cd3-05ca550d6141)
+真诚，就是不欺人也不自欺
+热爱，就是全心投入并享受其中
+
+1. 和用户交朋友
+- 真诚对待用户，才能赢得信任
+- 以用户为中心，其他一切纷至沓来
+- 更关注用户，而非竞争对手
+
+2. 工程师思维
+- 技术为本，敢于探索，持续做酷的产品、有趣的事情
+- 敢想敢干。如果不敢想，一定做不到
+- 创新决定我们能飞多高，质量决定我们能走多远
+
+3. 主人翁精神
+- 小米的使命与愿景、荣誉与责任，都和你息息相关
+- 决不为短期目标而牺牲公司长期价值
+- 不让事情掉地上，绝对不能说“那不是我的工作”
+
+4. 信任第一
+- 诚信是我们所有行为的底线
+- 真诚对待所有人，包括我们的用户、同事、股东和合作伙伴
+- 坦诚沟通，所有事情都能摊在桌面上说
+
+5. 共创共识
+- 与你直接相关的业务，你都有权参与并畅所欲言
+- 团队中的每个重要决定，都需要大多数人支持
+- 决策之后，充分沟通，让相关团队每个人知道为什么，并坚定执行
+
+6. 结果导向
+- 凭数据发言，拿结果说话
+- 重视最终结果，也重视过程中的里程碑
+- 鼓励勤劳，奖励功劳
+
+7. 坚韧乐观
+- 任何事业都不是坦途，直面挫折和挑战，绝不退缩
+- 你一定比困难更强，能从容应对各种挑战
+- 永远相信美好的事情即将发生
+
+8. 持续成长
+- 追求极致，每次交付的结果，都代表自己的最高水平
+- 敢于自我批评，即便这样做会令自己尴尬或难堪
+- 持续学习，不断提升，成为更优秀的自己
+
+![](https://github.com/3ipr/3ipr/assets/118059334/5bc6183b-3c22-4762-8028-62fde2898ff3)
+![](https://github.com/3ipr/3ipr/assets/118059334/e7539af8-8757-443b-8129-d328b7e860e6)
+![](https://github.com/3ipr/3ipr/assets/118059334/3bf58291-0260-4cab-9cd3-05ca550d6141)
 > 金手指，点石成金
 
-![image](https://github.com/3ipr/3ipr/assets/118059334/9d70cfee-b802-4f84-9305-2a8f0743b71d)
+![](https://github.com/3ipr/3ipr/assets/118059334/9d70cfee-b802-4f84-9305-2a8f0743b71d)
 > [《沉思者》](https://zh.wikipedia.org/zh-sg/%E6%B2%89%E6%80%9D%E8%80%85)（法语：Le Penseur；英语：The Thinker）是一座由奥古斯特·罗丹创作的青铜雕塑，通常放置在石座上。该雕塑描绘了一个坐在岩石上的壮硕的裸体男性形象。他俯著身、右手肘放在左大腿上，右手背支撑著下巴、显露著一种深思、沈思的姿势，雕像经常被用作代表哲学的形象。《沉思者》采用了现实主义手法来表达了人文主义精神。雕像人物俯首而坐，把右肘放在左膝上，手托着下巴和嘴唇，目光下视，表情痛苦地陷入深思、冥想之中。罗丹用此形象来象征诗人但丁，也象征罗丹自己，甚至全人类，该雕像表达了但丁对地狱中的种种罪恶以及目前眼下的人间悲剧进行思考，在对人类表示同情与爱惜的同时，内心也隐藏着苦闷以及强烈的思想矛盾。而前额与眉弓突出但双目下凹以致出现黑影、加上压弯的肋骨和紧张的肌肉、紧收的小腿肌腱以及痉挛弯曲的脚趾则体现出人物内心的极度压抑和隐藏的痛苦。
 
 ![](https://github.com/3ipr/3ipr/assets/118059334/620522d7-cc54-4541-9676-d26c59b979e8)
 ![](https://github.com/3ipr/3ipr/assets/118059334/01320f0f-8ebf-4224-bd26-430287eefc39)
 ![](https://github.com/3ipr/3ipr/assets/118059334/48c283b2-e0e3-41ff-9045-617d5f9abb72)
+![](https://github.com/3ipr/3ipr/assets/118059334/7f311e3c-6216-45f4-944a-e36a311ef2e8)
+![](https://github.com/3ipr/3ipr/assets/118059334/8fa59067-8524-4270-be06-07da6d4ffa87)
+![](https://github.com/3ipr/3ipr/assets/118059334/91709fe4-2f78-4ee1-854f-8258c2c6d7d4)
+![](https://github.com/3ipr/3ipr/assets/118059334/e95768f9-657d-45b1-bae4-7c308393e815)
 > [Go Beyond.](https://www.hihonor.com/cn/brand/)
